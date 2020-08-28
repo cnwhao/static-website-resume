@@ -1,3 +1,7 @@
+转载！！！！！！
+来自：https://github.com/resumejob/awesome-resume
+
+
 本文章由**海外兔 (https://osjobs.net)** 撰写，我们团队有丰富的面试官经验，能帮助你分析简历，模拟面试，重新规划你的职业生涯。详细信息请浏览**求职课程 (https://osjobs.net/co/)**
 
 ### 求职系列文章：
